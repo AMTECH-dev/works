@@ -7,5 +7,5 @@
 
 ## We are professionals. From top to bottom
 
-## We are professionals. From top to bottom
+## We invest in our team members’ growth and education
 
