@@ -9,3 +9,5 @@
 
 ## We invest in our team members’ growth and education
 
+## We strive to be as transparent and honest as possible
+
